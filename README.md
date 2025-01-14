@@ -6,7 +6,7 @@
 
 ### [➤ ►🌍📺📱👉 W𝚊tch Sankranthiki Vasthunnam (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://rb.gy/im9t1t)
 
-<a href="https://rb.gy/im9t1t"><img src="https://github.com/Crazyboy678/sankranthiki-vasthu-movie-ful/blob/e643af831eea08bd317212d349b23fd95d202212/VN20250115_004756.mp4" alt="fsgd" /></a>
+<a href="https://rb.gy/im9t1t"><img src="https://github.com/Crazyboy678/sankranthiki-vasthu-movie-ful/blob/99a03e74be17f41c9a37189b409b754609c428f9/20250115_004151.jpg" alt="fsgd" /></a>
 
 
 
